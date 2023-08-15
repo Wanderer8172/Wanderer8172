@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Wanderer8172
 - 🇹🇷 ı'm turkhish♥️
-- I only come here out of curiosity and for scripts.
+- I only come here out of curiosity and for roblox cheats.
 - ai love u<3
 
 <!---
